@@ -1,1 +1,0 @@
-info personal computer
